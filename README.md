@@ -1,1 +1,1 @@
-# LASSSSSTTTTDIGITAL-SChoool
+# Digital--School
